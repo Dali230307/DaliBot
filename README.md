@@ -1,2 +1,2 @@
 # DaliBot
-INI BARU PERTAMA SAYA COBA
+Haha
